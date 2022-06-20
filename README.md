@@ -1,1 +1,3 @@
 # parkinsons_resources_weekly_planner_activities_checklist
+
+See most recent version upload
